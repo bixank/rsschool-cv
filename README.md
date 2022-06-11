@@ -1,1 +1,1 @@
-# rsschool-cv
+https://bixank.github.io/rsschool-cv/cv
